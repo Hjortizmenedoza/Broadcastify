@@ -20,4 +20,9 @@ Una vez al año en Genesys premia el sobresaliente trabajo de nuestros clientes 
 ¡Este año, estamos encantados de anunciar que cinco clientes de la región de Latam han sido seleccionados como finalistas!
  
 ¡Felicitaciones a Despegar ( Rodrigo Cordo y Bernardo Herrero)! a CEMEX (Luis Hernández y Homero Resendez)! Bancolombia (Gabriel Gonzalez y Juan Carlos Mora)! SisteCrédito (Juliet Natalia Florez)! y Emtelco (Maritza Garzón Vargas)! finalistas elegidos por su destacado trabajo en la adopción de la innovación y por brindar experiencias excepcionales a sus clientes! 🚀 
- 
+5 benefits of sustainable beekeeping 
+hashtag#WorldBeeDay hashtag#SaveTheBees
+
+Valora esta traducción 
+5 beneficios de la apicultura sostenible 
+hashtag#WorldBeeDay hashtag#SaveTheBees 
