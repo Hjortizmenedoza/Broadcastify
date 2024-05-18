@@ -15,3 +15,9 @@ This is a staggering move that could have a major impact on the future of techno
 ♻️Please share and repost it to help others 
 
 Credits: Dr. Joerg Storm
+Una vez al año en Genesys premia el sobresaliente trabajo de nuestros clientes que están comprometidos a impulsar experiencias de clase mundial a través de los Customer Innovation Awards.
+ 
+¡Este año, estamos encantados de anunciar que cinco clientes de la región de Latam han sido seleccionados como finalistas!
+ 
+¡Felicitaciones a Despegar ( Rodrigo Cordo y Bernardo Herrero)! a CEMEX (Luis Hernández y Homero Resendez)! Bancolombia (Gabriel Gonzalez y Juan Carlos Mora)! SisteCrédito (Juliet Natalia Florez)! y Emtelco (Maritza Garzón Vargas)! finalistas elegidos por su destacado trabajo en la adopción de la innovación y por brindar experiencias excepcionales a sus clientes! 🚀 
+ 
